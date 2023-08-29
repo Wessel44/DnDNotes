@@ -5,7 +5,7 @@ id: home
 permalink: /
 ---
 
-# Welcome! 🌱
+# Welcome! 🎲
 
 This is my notekeeping for various D&D sessions. Mainly used to share with fellow players.
 Most of it is in Dutch and it is nowhere near complete or accurate. 
