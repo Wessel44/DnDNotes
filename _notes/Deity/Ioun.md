@@ -1,0 +1,1 @@
+Ioun, the Knowing Mistress, also known as the Knowing Mentor, is the goddess of knowledge, prophecy, and skill. She opposes [[Vecna]], who deals in dark secrets and hidden knowledge.

@@ -1,0 +1,1 @@
+The reddish-purple, maroon-brown color moon. It takes either half a year or approximately one full year (328 days) to complete a rotation and thus is only visible in the sky for half the year.

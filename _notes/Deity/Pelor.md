@@ -1,0 +1,1 @@
+Pelor, the Dawnfather is the god of the sun, summer, and agriculture, and is generally worshiped by farmers and people who live off the land. He is one of the prime creator gods of [[Exandria]]. He planted the [[Sun Tree]] in [[Whitestone]].

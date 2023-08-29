@@ -1,0 +1,1 @@
+Crew of 6 smiling warriors, their scuffed armor of green and brown and weathered skin show experience. Markings and accessories give you the sense of [[Tal'dorei]] heritage. Lead by [[Darrow]].
