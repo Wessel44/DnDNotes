@@ -1,1 +1,0 @@
-Assistant of [[Gerard Aston]]

@@ -1,1 +1,0 @@
-Moon close to [[Exandria]] and appears large in the sky. It has a 33-day cycle during which it waxes and wanes.

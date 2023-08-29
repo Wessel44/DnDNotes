@@ -1,1 +1,0 @@
-The only elven city within the [[Clovis Concord]], on the edge of the [[Menagerie Coast]]. Spoken of as a haven for criminals, thieves, murderers, but really, it's home to the truly free entrepreneurs of [[Wildemount]]... and criminals, thieves, and murderers.

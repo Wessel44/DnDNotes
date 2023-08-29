@@ -1,1 +1,0 @@
-The **Evening Nip** is the name for two connected bars in [[Port Damali]]. The external bar, a very small, dark-wood, rough and tumble dive, served as a front for [[The Gentleman]]'s base of operations. The real Evening Nip, where [[The Gentleman]] stayed and decent alcohol was served, was located underneath the other Evening Nip.

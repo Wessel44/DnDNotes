@@ -1,1 +1,0 @@
-A well-armed troupe of 5 dwarves and two gnomes wearing blacks and golds, they avoid social engagement, instead focusing on practice. Lead by a grey-haired dwarven woman wielding two battle axes.

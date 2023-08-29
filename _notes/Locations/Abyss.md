@@ -1,3 +1,0 @@
-The Abyss is an infinite plane of chaos and evil. Unlike the [[Nine Hells]]' strict hierarchy, the Abyss is chaotic and unorganized.
-
-The Abyss is one of the [[Outer Planes]], separated from the mortal planes by the [[Divine Gate]]. The mad deity [[Tharizdun]], the Chained Oblivion, dreams its infinite depths and demon hordes into being, and since [[Tharizdun]]'s defeat at the hands of [[Pelor]] in [[the Calamity]] the god has been shackled in the deepest pits of the Abyss. 

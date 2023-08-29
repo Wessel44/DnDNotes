@@ -1,1 +1,0 @@
-**The Myriad** (also known as "The Many") is an organized crime syndicate originating in [[Wildemount]]

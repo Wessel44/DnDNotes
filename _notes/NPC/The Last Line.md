@@ -1,1 +1,0 @@
-A crew of 5 soldiers of the [[Clovis Concord]], wearing battle-scarred uniforms and armor from fights past. Lead by an elven man with short brown hair and sky-blue piercing eyes who seems to practice his strikes like a dance.
