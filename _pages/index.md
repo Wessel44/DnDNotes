@@ -8,7 +8,7 @@ permalink: /
 # Welcome! 🌱
 
 This is my notekeeping for various D&D sessions. Mainly used to share with fellow players.
-Most of it is nowhere near complete or accurate. 
+Most of it is in Dutch and it is nowhere near complete or accurate. 
 
 <p style="padding: 3em 1em; background: #f5f7ff; border-radius: 4px;">
   DM:<br>
