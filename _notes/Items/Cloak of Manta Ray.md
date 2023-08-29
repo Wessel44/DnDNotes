@@ -1,0 +1,1 @@
+![[CloakOfMantaRay.png]]

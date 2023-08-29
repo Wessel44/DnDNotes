@@ -1,0 +1,1 @@
+The Cobalt Soul is an order that worships [[Ioun|The Knowing Mistress, Ioun]]. Some members of the Cobalt Soul are monks, while others are knowledge clerics of [[Ioun]], bards, or fighters. Many folks are just standard researchers, caretakers, and historians.
