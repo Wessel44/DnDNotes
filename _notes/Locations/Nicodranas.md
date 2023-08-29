@@ -6,6 +6,7 @@ The city exterior wall has many gates and archways with portcullises that are he
 
 
 ![[Pasted image 20221024154048.png]]
+<img src="/assets/Pasted image 20221024154048.png"/>
 
 
 

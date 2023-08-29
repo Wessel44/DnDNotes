@@ -1,4 +1,5 @@
 ![[WhatsApp Image 2022-08-09 at 12.01.20 AM.jpeg]]
+<img src="/assets/WhatsApp Image 2022-08-09 at 12.01.20 AM.jpeg"/>
 
 
  [[Sizlefeth]] vertelde [[Bigtoe Smalltoe]] dat ze wilde dat hij zoveel mogelijk mensen pijn doet. Jullie inspecteerden nog het omgevallen standbeeld, maar jullie konden niets bijzonders vinden buiten de [[Lash of Shadows]]. 
@@ -11,4 +12,5 @@ Tijdens het gevecht werd er alarm geslagen waardoor jullie onderaan de temple me
 
 
 ![[Pasted image 20220822153559.png]]
+<img src="/assets/Pasted image 20220822153559.png"/>
 

@@ -1,4 +1,5 @@
 ![[Pasted image 20220221112925.png]]
+<img src="/assets/Pasted image 20220221112925.png"/>
 
 Starosta (mayor) of [[Port Damali]]
 

@@ -1,5 +1,6 @@
 ![](https://i.imgur.com/hNeynQw.jpg)
 
+<img src="https://i.imgur.com/hNeynQw.jpg"/>
 
 Father of [[Alima Tyrkas]] and husband of [[Aisha Tyrkas]]
 

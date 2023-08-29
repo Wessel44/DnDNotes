@@ -1,5 +1,6 @@
 
 ![[Vokodo_Battle.png]]
+<img src="/assets/Vokodo_Battle.png"/>
 
 
 Terwijl [[Bob]] en [[Bigtoe Smalltoe]] richting het zwarte gedaante zwommen merkten jullie allemaal dat het water om jullie heen erg warm begon te worden. Het begon zelfs pijn te doen. [[Vokodo]] was niet blij dat jullie verzuimden om offers te brengen en wilde jullie straffen. Een gevecht begon. 
@@ -48,6 +49,7 @@ Verder vinden jullie nog:
 [[Argoth]] geeft aan dat hij een shortcut weet om de lair van [[Vokodo]] uit te komen. Jullie volgen hem en al snel komen jullie aan in een reusachtige grot met daarin een groot aantal schepen verankerd. [[Argoth]] geeft aan dat hier de schepen aangelegd werden wanneer nieuwe bezoekers naar het eiland kwamen. 
 
 ![[Heaven Fall.jpg]]
+<img src="/assets/Heaven Fall.jpg"/>
 
 
 

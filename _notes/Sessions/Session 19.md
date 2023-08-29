@@ -7,10 +7,12 @@ Bij aankomst op jullie schip zien jullie [[Alima Tyrkas]] blij richting [[Bob]] 
 [[Bob]] gaat nog even op bezoek bij een uitgemergelde [[Captain Vosskiir]] onderin het ruim. [[Captain Vosskiir]] smeekt om hem te laten gaan, maar [[Bob]] toont geen medelijden. Vervolgens vertrekken jullie richting [[Nicodranas]].
 
 ![[Pasted image 20221024154034.png]]
+<img src="/assets/Pasted image 20221024154034.png"/>
 
 Na een aantal dagen zien jullie de haven van [[Nicodranas]]. Het valt jullie op dat voor de haven enkele grote [[Clovis Concord]] oorlogschepen alert patrouilleren. Jullie besluiten om aan te meren op een locatie waar minder 'vragen' worden gesteld. Wanneer jullie aan wal gaan zien jullie veel [[Clovis Concord]] personeel op de been. Er hangt een gespannen sfeer. Niet lang nadat jullie aan land zijn gegaan zien jullie op een muur wat aanplakbiljetten hangen. Jullie zagen dat er onder andere biljetten hingen met jullie foto's erop.
 
 ![[bobwantedcs.png]]
+<img src="/assets/bobwantedcs.png"/>
 
 Hierop lazen jullie: 
 	Part of the Sea Men 
@@ -42,3 +44,4 @@ Nadat jullie vier dagen onderweg zijn naar [[Rumblecusp]] ziet [[Yowensi]] in de
 Met het gevaar geweken vervolgden jullie de tocht richting [[Rumblecusp]]
 
 ![[DTsm.png]]
+<img src="/assets/DTsm.png"/>

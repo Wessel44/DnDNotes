@@ -1,6 +1,7 @@
 Na jullie encounter met de [[Dragon Turtle]] vervolgden jullie de tocht richting [[Rumblecusp]]. Na enige tijd zien jullie op een ochtend in de verte een eiland verschijnen. Een aparte bergformatie die jullie nog niet eerder hebben gezien. De bergen die jullie op het eiland zien lijken op reusachtige bomen die boven de normale boomtoppen uitkomen. In het midden van het eiland zien jullie iets wat lijkt op een grote vulkaan-achtige berg. Bij het topje zien jullie ook een lichte rookontwikkeling. 
 
 ![[Pasted image 20221125091033.png]]
+<img src="/assets/Pasted image 20221125091033.png"/>
 
 Het hele eiland is bedekt met dichtbegroeide jungle en het lijkt dat alleen aan de zuid-oostkant van het eiland een klein stukje strand aanwezig is. Op dit strand zien jullie een verlaten stijger waar 1, misschien 2, schepen zouden kunnen verankeren. Met enige moeite lukt het jullie om de [[Sea Men]] door het koraal te navigeren richting de stijger. Eenmaal aangekomen gaan jullie aan wal en zien jullie op de kade een boordje waarop staat: "[[Vo-Village]]" met een pijl richting de jungle. [[Orly]] vraagt wat de rest van de crew moet doen en jullie besluiten dat ze de achterblijven op de boot aan de pier. 
 

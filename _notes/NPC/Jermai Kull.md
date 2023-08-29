@@ -1,4 +1,5 @@
 ![[Pasted image 20220221112238.png]]
+<img src="/assets/Pasted image 20220221112238.png"/>
 
 Male Goliath 
 

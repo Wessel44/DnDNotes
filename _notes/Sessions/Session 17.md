@@ -39,6 +39,7 @@ In jullie hoofd hoorden jullie vervolgens:
 Jullie zagen toen rechts naast [[Tyra]] opeens een reusachtige vogel tevoorschijn komen. Deze herkenden jullie en jullie weten dat dit [[Desirat]] was. De grote vogel was in gevecht met, wat lijkt op, een groep powerfull mages. Jullie zagen op de robes die de mages dragen het volgende logo:
 
 ![[CA.jpg]]
+<img src="/assets/CA.jpg"/>
 
 Het lukte de mages om [[Desirat]] te overmeesteren en gevangen te nemen.
 

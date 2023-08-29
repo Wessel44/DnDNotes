@@ -1,4 +1,5 @@
 ![[Pasted image 20220211153647.png]]
+<img src="/assets/Pasted image 20220211153647.png"/>
 
 **Name:** -
 

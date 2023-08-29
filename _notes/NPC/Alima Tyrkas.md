@@ -1,4 +1,5 @@
 ![[Pasted image 20220128145224.png]]
+<img src="/assets/Pasted image 20220128145224.png"/>
 
 14 yo half elf female 
 

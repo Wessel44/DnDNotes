@@ -1,4 +1,5 @@
 ![[Pasted image 20220211154233.png]]
+<img src="/assets/Pasted image 20220211154233.png"/>
 
 **Race:** Water Genasi
 **Occupation:** Crime boss in Port Damali - Probably part of [[The Myriad]]

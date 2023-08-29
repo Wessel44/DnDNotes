@@ -13,6 +13,7 @@ Eenmaal binnen zien jullie een kleine algemene ruimte en daar aansluitend 3 slaa
 In de avond besluiten [[Krekhet]] en [[Nicholai]] [[Exar]] en [[Lythier]] te helpen met koken. [[Exar]] en [[Lythier]] zijn on de indruk van [[Krekhet]]'s kookkunsten. [[Nicholai]] gaat, tot opluchting van [[Exar]] en [[Lythier]], halverwege weg. Hij veranderd in een papegaai en besluit terug te vliegen richting de [[Sea Men]] om de [[Orly]] en de crew te waarschuwen. Hij geeft de opdracht om rond het eiland te varen gedurende de nacht. Hij besluit ook om te overnachten op het schip en in de ochtend weer terug te vliegen. 
 
 ![[Pasted image 20230323135051.png]]
+<img src="/assets/Pasted image 20230323135051.png"/>
 
 Omdat jullie allemaal het gevoel hadden dat jullie op onverklaarbare wijze werden bekeken besluiten jullie om een Ropetrick pocket dimensie te maken in jullie hut om te kijken of het gevoel daar ook aanwezig is. In de pocket dimensie is het gevoel verdwenen. Jullie besluiten daarom om [[Exar]] te misleiden om ook de pocket dimensie in te gaan. Met wat slinkse wijzen lukt het jullie om [[Exar]] de dimensie in te laten gaan. [[Lythier]], die mee was gekomen, vertrouwd het niet en besluit hulp te gaan halen. [[Bob]] probeert dit te voorkomen en vermoordt [[Lythier]]... bijna. In de pocket dimensie is [[Exar]] voornamelijk verward. Hij geeft toe dat er iets mis is, maar kan zich nog steeds niet alles herinneren. 
 
@@ -29,6 +30,7 @@ Opnieuw komen jullie bij een muur met [[Undead Ashblossom]]s aan en zorgt [[Exar
 In jullie hoofd horen jullie een zware stem: "Ik hou jullie in de gaten sinds dat jullie het paradijs hebben gevonden". [[Vokodo]] vraagt om gifts. Jullie proberen enkele (kleine) offers te brengen. Iets grijpt het uit jullie handen. [[Vokodo]] lijkt niet onder de indruk en geeft aan dat jullie niet genoeg offers brengen. Bovenin de ruimte zien jullie enkele glinsteringen. [[Bob]] en [[Bigtoe Smalltoe]] besluiten om deze richting op te zwemmen.
 
 ![[sea men.png]]
+<img src="/assets/sea men.png"/>
 
 
 .

@@ -1,4 +1,5 @@
 ![[Pasted image 20220210142820.png]]
+<img src="/assets/Pasted image 20220210142820.png"/>
 
 Green complexsioned male Sea Elf was a previous crewmate of the [[Wavechaser]] under captain [[Three Earrings]].
 

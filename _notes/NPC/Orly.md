@@ -2,7 +2,8 @@ Male Tortle.
 Met in [[Port Damali]]
 Former Navigator. Current occupation: Tattoo Parlor
 
-![[Orly_Skiffback_by_David_Ren%3F.jpg]]
+![[Orly_Skiffback_by_David_Ren.jpg]]
+<img src="/assets/Orly_Skiffback_by_David_Ren.jpg"/>
 
 Can set magical tattoos if materials are provided.
 

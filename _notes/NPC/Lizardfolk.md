@@ -1,4 +1,5 @@
 ![[Pasted image 20220418181927.png]]
+<img src="/assets/Pasted image 20220418181927.png"/>
 
 Inhabitants of [[Urukayxl]].
 

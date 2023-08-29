@@ -1,4 +1,5 @@
 ![[Pasted image 20220418182108.png]]
+<img src="/assets/Pasted image 20220418182108.png"/>
 
 Protectors of the [[Temple of the False Serpent]]
 

@@ -1,4 +1,5 @@
 ![](https://i.imgur.com/hNeynQw.jpg)
+<img src="https://i.imgur.com/hNeynQw.jpg"/>
 
 Wife of [[Jaris Tyrkas]] and mother of [[Alima Tyrkas]]
 

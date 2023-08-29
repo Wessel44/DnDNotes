@@ -1,4 +1,5 @@
 ![[Pasted image 20220418182826.png]]
+<img src="/assets/Pasted image 20220418182826.png"/>
 
 Animate Dead servant of [[Krekhet]]. 
 

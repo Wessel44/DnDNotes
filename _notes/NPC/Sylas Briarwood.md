@@ -1,4 +1,5 @@
 ![[Pasted image 20220408150034.png]]
+<img src="/assets/Pasted image 20220408150034.png"/>
 
 
 Some sort of Vampire. Got killed by [[Vox Machina]] while he was trying to kidnap [[Yowensi]]. 

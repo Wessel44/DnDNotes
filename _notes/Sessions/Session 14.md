@@ -35,6 +35,7 @@ Al snel hadden jullie door dat dit iets te maken had met bloed. Jullie besloten 
 Verder zagen jullie nog in de kamer aan de rechterkant 3 muurschilderijen. Aan de linkerkant zien jullie een vertoning van een grote paarse vogel met vuur-achtige vleugels en 3 ogen die lijken op onyx stenen (zwart). In het midden een gigantische zeeslang die in het water zwemt. Op de slang zie je een veelvoud van kleine gele ogen op z'n lichaam en op z'n hoofd 3 grote gele ogen. Aan de rechterkant een worm-achtige wezen met 3 ivoren (witte) ogen binnen in z'n bek terwijl hij dwars door de grond heen boort.
 
 ![[Murals_of_Urukayxl_by_Hunter_Severn_Bonyun.jpg]]
+<img src="/assets/Murals_of_Urukayxl_by_Hunter_Severn_Bonyun.jpg"/>
 
 [[Bob]] herkende deze schilderijen na zijn research in de library van de [[Cobalt Soul]]. Tijdens jullie onderzoek naar [[Uk'otoa]] kwamen jullie deze beelden ook tegen. Dit waren:
 

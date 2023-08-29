@@ -1,4 +1,5 @@
 ![[Pasted image 20220513140207.png]]
+<img src="/assets/Pasted image 20220513140207.png"/>
 
 The dagger has a hooked, dark metal blade that is cold to the touch. A faint black energy drifts off the edge of the blade.
 

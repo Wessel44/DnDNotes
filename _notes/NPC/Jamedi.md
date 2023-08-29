@@ -1,4 +1,5 @@
 ![[Jamedi.png]]
+<img src="/assets/Jamedi.png"/>
 
 Dark skinned human.
 

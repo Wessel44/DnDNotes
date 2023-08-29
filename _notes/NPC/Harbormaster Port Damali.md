@@ -1,4 +1,5 @@
 ![[Pasted image 20220210151832.png]]
+<img src="/assets/Pasted image 20220210151832.png"/>
 
 60-ish year old human male. 
 Short, straight gray hair and brown eyes.
