@@ -7,8 +7,12 @@ permalink: /
 
 # Welcome! 🌱
 
+This is my notekeeping for various D&D sessions. Mainly used to share with fellow players.
+
 <p style="padding: 3em 1em; background: #f5f7ff; border-radius: 4px;">
-  Take a look at <span style="font-weight: bold">[[Your first note]]</span> to get started on your exploration.
+  DM:
+  The Sea Men <span style="font-weight: bold">[[Session List]]</span>
+  A adventure in Wildemount based on the second campaign of Critical Role. 
 </p>
 
 This digital garden template is free, open-source, and [available on GitHub here](https://github.com/maximevaillancourt/digital-garden-jekyll-template).
