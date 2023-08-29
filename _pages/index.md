@@ -13,7 +13,7 @@ Most of it is nowhere near complete or accurate.
 <p style="padding: 3em 1em; background: #f5f7ff; border-radius: 4px;">
   DM:<br>
   The Sea Men <span style="font-weight: bold">[[Session List]]</span><br>
-  An adventure in Wildemount based on the second campaign of Critical Role. 
+  An adventure in Wildemount inspired by the second campaign of Critical Role. 
 </p>
 
 <p style="padding: 3em 1em; background: #f5f7ff; border-radius: 4px;">
