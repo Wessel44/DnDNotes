@@ -8,11 +8,24 @@ permalink: /
 # Welcome! 🌱
 
 This is my notekeeping for various D&D sessions. Mainly used to share with fellow players.
+Most of it is nowhere near complete or accurate. 
 
 <p style="padding: 3em 1em; background: #f5f7ff; border-radius: 4px;">
-  DM:
-  The Sea Men <span style="font-weight: bold">[[Session List]]</span>
-  A adventure in Wildemount based on the second campaign of Critical Role. 
+  DM:<br>
+  The Sea Men <span style="font-weight: bold">[[Session List]]</span><br>
+  An adventure in Wildemount based on the second campaign of Critical Role. 
+</p>
+
+<p style="padding: 3em 1em; background: #f5f7ff; border-radius: 4px;">
+  Player:<br>
+  The COKL <span style="font-weight: bold">[[Session List COKL]]</span><br>
+  An adventure in Astella playing a Human Warlock named [[Redeef]]. 
+</p>
+
+<p style="padding: 3em 1em; background: #f5f7ff; border-radius: 4px;">
+  Player/DM:<br>
+  Forgotten Exiles <span style="font-weight: bold">[[Session List Forgotten Exiles]]</span><br>
+  An adventure following the guild members of the Forgotten Exiles. 
 </p>
 
 This digital garden template is free, open-source, and [available on GitHub here](https://github.com/maximevaillancourt/digital-garden-jekyll-template).

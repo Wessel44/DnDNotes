@@ -1,0 +1,1 @@
+Innkeeper van [[The Gifted Blossom]]
