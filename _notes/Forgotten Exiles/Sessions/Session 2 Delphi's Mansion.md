@@ -6,10 +6,10 @@ Jullie kregen via [[Wilson]] de opdracht van [[Vasil Talistrome]] te zien. Een g
 
 [[Wilson]] benaderde de onderstaande guildmembers om als groep de missie te voltooien:
 
-[[Rats]] (the muscle - Fighter)
-[[Bop]] (the brains - Ranger)
-[[Erevan]] (the finesse - Rogue)
-[[Onefu]] (the dashing - full head of hair Monk)
+- [[Rats]] (the muscle - Fighter)
+- [[Bop]] (the brains - Ranger)
+- [[Erevan]] (the finesse - Rogue)
+- [[Onefu]] (the dashing - full head of hair Monk)
 
 Jullie ontvingen per persoon 2 healing potions van [[Wilson]] voor de missie. Na enige planning besloten jullie om richting de mansion van [[Markos Delphi]] te gaan. Na 2 dagen reizen begonnen jullie in de buurt te komen van de mansion. Het weer is bewolkt, maar heel eventjes kwam door een klein gaatje in de wolken een straal van zonneschijn naar beneden.
 
@@ -45,7 +45,7 @@ Beneden was een donkere klamme wijnkelder. 4 grote tonnen met een laag stof tege
 
 "*Four wooden pews face a stone statue in the middle of this torchlit chamber. The statue has a roughly bipedal shape and is carved to look like it's coming undone, like a frayed rope. Its form is covered with mouths and outstretched tongues.*
 
-*Standing before the statue are four purple-cloaked figures, their faces hidden by cowls. They are writing on pieces of paper and muttering to each other."
+*Standing before the statue are four purple-cloaked figures, their faces hidden by cowls. They are writing on pieces of paper and muttering to each other.*"
 
 Ze keken even op na de binnenval van [[Rats]] maar gingen vervolgens verder met het noteren van notities op papier. Wat jullie op viel is dat in deze ruimte de magische effecten die jullie ervaarden in verschillende kamers veel vaker voorkwamen. Jullie vroegen enkele vragen aan de hooded figures. Ze gaven aan dat ze notities aan het maken waren over de magie dat door de mansion gaat. Verder gaven ze aan dat ze [[Markos Delphi]] al een tijdje niet meer hebben gezien en dat hij waarschijnlijk in de ritual room is op de 3e verdieping. 
 
