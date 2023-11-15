@@ -1,1 +1,2 @@
-[[Session 1 The missing ring]]
+[[Session 1 The missing ring]] - DM Duvvii
+[[Session 2 Delphi's Mansion]] - DM Wessel
