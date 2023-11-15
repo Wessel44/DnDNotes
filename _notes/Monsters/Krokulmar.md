@@ -1,0 +1,1 @@
+Entity from a different plain of existence. Mind controlled [[Markos Delphi]] to do his bidding. 
