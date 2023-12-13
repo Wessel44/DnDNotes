@@ -7,3 +7,5 @@
 - [[Session 6 Slime Raid part 2]]
 - [[Session 8 Bidding Wars]]
 - [[Session 9 Jarnefeldt the fearsome]]
+- [[Session 10 Mystery boxes]]
+- 
