@@ -1,2 +1,2 @@
 Continent ![](https://static.wikia.nocookie.net/criticalrole/images/1/18/Wildemount_Official_%28LOW_RES%29.jpg/revision/latest?cb=20200303033129)
-<img src="https://static.wikia.nocookie.net/criticalrole/images/1/18/Wildemount_Official_%28LOW_RES%29.jpg/revision/latest?cb=20200303033129"/>
+<img src="https://static.wikia.nocookie.net/criticalrole/images/1/18/Wildemount_Official_%28LOW_RES%29.jpg"/>
