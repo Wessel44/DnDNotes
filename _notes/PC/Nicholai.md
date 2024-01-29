@@ -7,3 +7,5 @@ Current items:
 [[Ring of Obscuring]]
 [[+1 Rapier]]
 [[Knave's Eye Patch]]
+![[Nicolaiwanted.png]]
+<img src="/assets/Nicolaiwanted.png"/>

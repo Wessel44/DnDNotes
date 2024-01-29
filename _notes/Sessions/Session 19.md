@@ -11,7 +11,7 @@ Bij aankomst op jullie schip zien jullie [[Alima Tyrkas]] blij richting [[Bob]] 
 
 Na een aantal dagen zien jullie de haven van [[Nicodranas]]. Het valt jullie op dat voor de haven enkele grote [[Clovis Concord]] oorlogschepen alert patrouilleren. Jullie besluiten om aan te meren op een locatie waar minder 'vragen' worden gesteld. Wanneer jullie aan wal gaan zien jullie veel [[Clovis Concord]] personeel op de been. Er hangt een gespannen sfeer. Niet lang nadat jullie aan land zijn gegaan zien jullie op een muur wat aanplakbiljetten hangen. Jullie zagen dat er onder andere biljetten hingen met jullie foto's erop.
 
-![[bobwantedcs.png]]
+![[bobwantedcs 1.png]]
 <img src="/assets/bobwantedcs.png"/>
 
 Hierop lazen jullie: 

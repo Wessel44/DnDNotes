@@ -8,3 +8,5 @@ Current items:
 [[Periapt of Wound Closure]]
 [[Sword of Lifestealing]]
 2x [[Adamantine Arrow]]
+![[Tyrawanted.png]]
+<img src="/assets/Tyrawanted.png"/>

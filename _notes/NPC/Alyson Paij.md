@@ -1,0 +1,1 @@
+"Captain [[Alyson Paij]] is a female human who is also know by the name "Screaming Knuckle". She is a feisty one, but never raids civilians ships, only criminal ships. This is why the [[Clovis Concord]] doesn't pursue her generally. She is often seen in the major ports like [[Nicodranas]], [[Port Zoon]] and [[Port Damali]]. She finds her targets there."

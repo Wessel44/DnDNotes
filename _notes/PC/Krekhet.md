@@ -7,3 +7,5 @@ Current items:
 [[Staff of Defense]]
 [[Bag of Holding]]
 
+![[krekhetwanted.png]]
+<img src="/assets/krekhetwanted.png"/>

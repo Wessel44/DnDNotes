@@ -14,3 +14,6 @@ Current items:
 [[Boots of Speed]]
 [[Corecut Dagger]]
 2 x [[Adamantine Arrow]]
+
+![[Yowensiwanted.png]]
+<img src="/assets/Yowensiwanted.png"/>

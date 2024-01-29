@@ -1,0 +1,1 @@
+Bloody Maggie is a red haired female human who commands the pirate ship '[[The Dragon Turtle]]'. She is one of the Plank Kings most favored captains. Our intel says she does a lot of work for the [[Plank King]]. She has last been seen recruiting crewmembers in [[Bisaft Isle]].

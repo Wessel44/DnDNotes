@@ -1,0 +1,1 @@
+This darkly handsome, is heavyset and strong, and has a keen mind for games of chance. He hails from [[Port Damali]]. Boerth doesn't trust anyone—especially his fellow [[Revelry]] sailors.

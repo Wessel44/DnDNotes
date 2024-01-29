@@ -6,3 +6,6 @@ Current items:
 [[Map of Urukayxl]]
 [[Wand of Smiles]]
 [[Rexxar's Arcane Emblem]]
+
+![[bobwantedcs 1.png]]
+<img src="/assets/bobwantedcs.png"/>

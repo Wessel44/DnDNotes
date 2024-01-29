@@ -20,6 +20,8 @@ PC:
 
 NPC:
 [[Dilyuu]]
+[[Orly]]
 
 Prisoner:
 [[Captain Vosskiir]]
+

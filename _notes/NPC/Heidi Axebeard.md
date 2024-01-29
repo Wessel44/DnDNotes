@@ -1,0 +1,1 @@
+This lawful evil acolyte is the ship's pilot and first mate, and she has a knack for predicting the weather. She hails from [[Grimgolir]] in the [[Dwendalian Empire]] but has spent decades navigating the sea. Heidi has fought [[Sahuagin]] on multiple occasions but has never seen them wield magic like whatever caused [[Palma Flora]] Isle to sink beneath the sea.

@@ -31,7 +31,7 @@ Jullie mochten vertrekken uit de [[Evening Nip]] en jullie gingen vervolgens ook
 
 Jullie ontdekten onder andere het volgende:  
 
-[[Uk'otoa]]was created by [[Zehir]] and terrorized the seas of [[Wildemount]] until the [[Divergence]] left the leviathan without master or purpose. The surviving indigenous people of the [[Swavain Islands]], the [[Ki'Nau]], took [[Uk'otoa]] as their guide and god to rule the waters and bring them prosperity. The leviathan elevated the [[Ki'Nau]] to concquer the southern coasts of the continent until the jealous will of [[Zehir]] reached beyond the [[Divine Gate]] and discovered the insolence of his creation, commanding his followers to seal away [[Uk'otoa]] in the bedrock beneath the [[Lucidian Ocean]]. Rumor has it that these followers have used several crystals as bindings to hold [[Uk'otoa]] captive. 
+[[Uk'otoa]] was created by [[Zehir]] and terrorised the seas of [[Wildemount]] until the [[Divergence]] left the leviathan without master or purpose. The surviving indigenous people of the [[Swavain Islands]], the [[Ki'Nau]], took [[Uk'otoa]] as their guide and god to rule the waters and bring them prosperity. The leviathan elevated the [[Ki'Nau]] to concquer the southern coasts of the continent until the jealous will of [[Zehir]] reached beyond the [[Divine Gate]] and discovered the insolence of his creation, commanding his followers to seal away [[Uk'otoa]] in the bedrock beneath the [[Lucidian Ocean]]. Rumor has it that these followers have used several crystals as bindings to hold [[Uk'otoa]] captive. 
 
 Vervolgens gingen jullie je voorbereiden om naar het [[Summer Tournament]] te gaan.
 

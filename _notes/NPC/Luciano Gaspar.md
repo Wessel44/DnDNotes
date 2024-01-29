@@ -1,0 +1,1 @@
+Owner of general store [[Trader's Turn Plaza]] 

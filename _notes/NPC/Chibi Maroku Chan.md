@@ -2,7 +2,6 @@
 <img src="/assets/Pasted image 20220216141114.png"/>
 
 Female Gnome Warlock
-Previous played by Summer.
 
 Mysteriously dissapeared after the encounter with the [[Goblin King]] in [[Cragmaw Hideout]]
 
