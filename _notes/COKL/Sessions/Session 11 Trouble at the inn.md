@@ -1,6 +1,6 @@
 Na de escapades in de sewers besloten we om terug te gaan naar [[The Gifted Blossom]] om bij te komen en eventueel weer met [[Blaid]] in contact te komen. We besloten om op de wacht te staan terwijl de andere leden sliepen. [[VahKahl]] hoorde tijdens de eerste watch wat geroezemoes buiten maar kon niks vinden.
 
-Tijdens de 2e watch besloot [[Redeef]] om [[Jack]] voor de deur te zetten als waarschuwing mechanisme. Opeens werd de deur opengetrapt en [[Jack]] vloog door [[The Gifted Blossom]] heen. In de deuropening stond niemand. [[Redeef]] dacht meteen aan de thieflings die onzichtbaar konden worden. Hij schreeuwde richting de rustende [[Conquerors of the Kutul Labyrinth]] dat ze worden geambushed. Hij maakte [[Glenn]] en zichzelf daarna meteen ook onzichtbaar. 
+Tijdens de 2e watch besloot [[Redeef]] om [[Jack]] voor de deur te zetten als waarschuwing mechanisme. Opeens werd de deur opengetrapt en [[Jack]] vloog door [[The Gifted Blossom]] heen. In de deuropening stond niemand. [[Redeef]] dacht meteen aan de thieflings die onzichtbaar konden worden. Hij schreeuwde richting de rustende [[Conquerors of the Kutul Labyrinth]] dat ze werden geambushed. Hij maakte [[Glenn]] en zichzelf daarna meteen ook onzichtbaar. 
 
 De [[Conquerors of the Kutul Labyrinth]] kwamen uit hun kamers om te kijken wat er aan de hand was. We probeerden meteen om alle deuren te blokkeren zodat eventuele indringers niet naar buiten konden. [[VahKahl]] met zijn Spirit Guardians en [[Daniqua]] met willekeurige fireballs.
 
