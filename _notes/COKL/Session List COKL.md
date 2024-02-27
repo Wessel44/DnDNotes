@@ -8,4 +8,4 @@
 - [[Session 8 Bidding Wars]]
 - [[Session 9 Jarnefeldt the fearsome]]
 - [[Session 10 Mystery boxes]]
-- 
+- [[Session 11 Trouble at the inn]]
