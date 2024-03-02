@@ -33,4 +33,4 @@ De princes stelde zich voor als [[Lameya]]; Queen of [[Ashlava]]. De guards naam
 
 Bij elke hit die [[Ricochet]] deed leek het wel alsof een divine energy extra power gaf en elke hit leek sterke dan de vorige. Op indrukwekkende wijze versloeg [[Ricochet]] de guard. Een goed affiche vanuit de [[Conquerors of the Kutul Labyrinth]] richting [[Lameya]] die erg onder de indruk was van [[Ricochet]]. 
 
-Indrukwekkende dat het vertoon van [[Ricochet]] was, het was niet zo indrukwekkend als de 20 thieflings die [[VahKahl]] had verslagen. 
+Indrukwekkend dat het vertoon van [[Ricochet]] ook was, het was niet zo indrukwekkend als de 20 thieflings die [[VahKahl]] had verslagen...
