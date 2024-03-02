@@ -9,3 +9,4 @@
 - [[Session 9 Jarnefeldt the fearsome]]
 - [[Session 10 Mystery boxes]]
 - [[Session 11 Trouble at the inn]]
+- [[Session 12 Confessing to murder]]
