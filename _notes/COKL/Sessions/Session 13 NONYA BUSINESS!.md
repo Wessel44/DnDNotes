@@ -1,0 +1,15 @@
+We gingen naar de gevangenis om [[VahKahl]] op te halen. [[VahKahl]] werd in de tussentijd ondervraagd door [[Gromash]], de chief van de gevangenis. In de gevangenis. In de ondervragingsruimte was een tafel met runes erop gekrast. [[VahKahl]] herkende de runes voor een Zone of Truth ritueel. 
+
+Door de rune moest [[VahKahl]] de waarheid spreken op de vragen van [[Gromash]]. [[VahKahl]] vertelde over de [[Nightshade Syndicate]] en de gestolen items die we hadden. [[Gromash]] was met name geinteresseerd in de [[Celestial Crystal]]. Deze is als vermist aangegeven door [[Lord Sir Christian]]. [[Lord Sir Christian]] is 1 van de rijkste personen in de stad. Hij heeft zelf ook een klein persoonlijk leger tot z'n beschikking. [[VahKahl]] geeft aan dat we contact op zullen nemen met [[Lord Sir Christian]] over de [[Celestial Crystal]]. [[VahKahl]] is daarna vrij om te gaan.
+
+Met behulp van de Sending spell vinden we elkaar weer en we besluiten om samen richting de inn te gaan om uit te rusten. In de avond klopt [[Blaid]] aan op de deur van onze kamers. We informeren hem wat er allemaal heeft plaatsgevonden en wat we van plan zijn met de princess. [[Blaid]] geeft op zijn beurt aan dat hij een vermoedelijke smuggling locatie heeft gevonden van de [[Inquisitor]]. Met nog 3 dagen te gaan totdat de speech van de prinses plaats gaat vinden besloten we om de volgende dag de smuggling locatie te inspecteren. 
+
+We kwamen aan bij een soort van pakhuis aan de rand van de stad. Voor de deur zagen we 2 guards staan. We benaderden de guards en [[VahKahl]] vroeg voor we ze werkten. 1 van de guards antwoorde met [[Nonya]] ... Business! [[Daniqua]] liet z'n maatje niet beledigd worden en schoot een firebolt richting de guard. De andere guard gooide een flashbang die een groot gedeelte van de groep verblinde... De guards vluchtten vervolgens het gebouw in. 
+
+Met behulp van [[Blaid]] gingen we het gebouw in maar zagen tot onze verbazing dat er niemand binnen was. We activeerden enkele traps, maar met behulp van de nuttige rogue [[Blaid]] konden we deze deactiveren. Bij nadere inspectie van de kamers zagen/voelden we dat het haardvuur een illusie was. [[VahKahl]] probeerde naar binnen te gaan, maar ging op een trap door staan en valt naar beneden en begint te glijden. [[Daniqua]] sprong er snel achteraan. [[VahKahl]] had halverwege zichzelf kunnen stoppen, maar werd door een glijdende [[Daniqua]] alsnog naar beneden geduwd. Onderaan de glijbaan vielen ze in wat stro en gaven met behulp van de mind-connection, die [[Blaid]] ons had gegeven, gaven [[Daniqua]] en [[VahKahl]] aan dat de rest ook naar beneden kon komen.
+
+Iedereen gleed naar beneden en we gingen de geheime ruimtes onderzoeken. Enkele kamers later kwamen we oog in oog met de 2 vluchtende guards en een sterke orc. Combat startte en met enige moeite lukte het ons om de 3 figuren te verslaan. We hoorden vervolgens ijzeren voetstappen verderop... 
+
+
+![[picInquisitors.jpg]]
+<img src="/assets/picInquisitors.jpg"/>

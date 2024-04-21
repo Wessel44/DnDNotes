@@ -8,7 +8,7 @@ Eenmaal aangekomen bij de mansion van [[Sebastian Viridian]] zien we een grote m
 
 We legde uit wat ons doel was en dat we graag de princes zelf wilden spreken. We lieten de geforgde brief zien en [[Gareth]] was overtuigd. Hij vertelde dat hij ging proberen te regelen dat we een afspraak met de princes konden krijgen. We kregen de opdracht om de volgende ochtend om 7:00 weer bij de mansion aanwezig te zijn. 
 
-Vol goede moed dat alles zo soepel was verlopen gingen we terug richting de Inn. Opnieuw ziet [[VahKahl]] dat we gevolgd werden. Terug in de inn trakteer [[Daniqua]] de hele groep op een goed diner met steak, goede wijn en genoeg bier. [[Ricochet]] was verassend netjes met zijn tafelmanieren. Nadat [[VahKahl]] zijn 4 uurtjes schoonheidsslaap had gehad besloot hij, zonder iemand te informeren, om buiten de inn te gaan kijken of we nog bespied werden. Hij stapte naar buiten en zag meteen met zijn arendsogen een thiefling op het dak liggen die keek naar de inn.
+Vol goede moed dat alles zo soepel was verlopen gingen we terug richting de Inn. Opnieuw ziet [[VahKahl]] dat we gevolgd werden. Terug in de inn trakteerde [[Daniqua]] de hele groep op een goed diner met steak, goede wijn en genoeg bier. [[Ricochet]] was verassend netjes met zijn tafelmanieren. Nadat [[VahKahl]] zijn 4 uurtjes schoonheidsslaap had gehad besloot hij, zonder iemand te informeren, om buiten de inn te gaan kijken of we nog bespied werden. Hij stapte naar buiten en zag meteen met zijn arendsogen een thiefling op het dak liggen die keek naar de inn.
 
 ![[Vahkhalglare.gif]]
 <img src="/assets/Vahkhalglare.gif"/>
