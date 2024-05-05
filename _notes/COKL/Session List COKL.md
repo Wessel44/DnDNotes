@@ -11,3 +11,4 @@
 - [[Session 11 Trouble at the inn]]
 - [[Session 12 Confessing to murder]]
 - [[Session 13 NONYA BUSINESS!]]
+- [[Session 14 Exploding Jack]]
