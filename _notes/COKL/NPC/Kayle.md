@@ -1,0 +1,1 @@
+male thiefling found bound in the smuggling base of the [[Inquisitor]]

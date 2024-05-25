@@ -1,5 +1,8 @@
 We hoorden een groot aantal voetstappen onze kant op komen. Op een gegeven moment stopte de aankomende voetstappen. Een bom met gloeiende lont werd toen opeens de kamer in gerold. [[Jack]] aarzelde geen moment en sprong richting de bom en gooiden hem in z'n mond. Het sissen van de bom bleef alleen doorgaan in de maag van de groene aap. Na enkele seconden ontplofte de bom en zagen de [[Conquerors of the Kutul Labyrinth]] leden [[Jack]] in meerdere deeltjes door de ruimte heen vliegen...
 
+![[Exploded Jack.jpg]]
+<img src="/assets/Exploded Jack.jpg"/>
+
 Paniekerig rende [[Redeef]] richting de resten van wat er nog over was van [[Jack]]. Tot zijn verbijstering was er nog iets over van [[Jack]] en het leek alsof het nog leefde. [[Burruku]] castte Cure Wounds op wat er nog over was van [[Jack]] en het gedaante begon weer iets meer op [[Jack]] te lijken. De blije [[Redeef]] stopte [[Jack]] terug in zijn bescherm hoesje in z'n schild. 
 
 [[VahKahl]] lukte het om zonder al te veel moeite [[Blaid]] te overtuigen om vooruit te scouten. Met zijn telepathische krachten kon hij ons informeren wat er aan de hand was verderop. Op een gegeven moment hoorden we dat [[Blaid]] in een trap was gevallen. [[Burruku]] castte invisibility op [[Daniqua]], [[Redeef]] en [[Ricochet]] zodat deze als eerste de kamers in konden gaan. 
@@ -16,7 +19,7 @@ Terwijl [[Redeef]] de aandacht van de vijand op zichzelf vestigde, lieten [[Twig
 
 Maar de magiër was niet de enige bedreiging. Toen [[Daniqua]] zijn krachten richtte op de duistere tovenaar, wekte hij zijn woede op. In een wanhopige poging om zijn ondergang te voorkomen, riep de magiër een machtige demon op, een schepsel van chaos en vernietiging.
 
-Terwijl de demon zich in de kamer manifesteerde, vochten de avonturiers harder dan ooit. [[Burukku]], met haar bedrevenheid in de kunsten van het denken, probeerde de gedachten van de demon te doorgronden, maar vond alleen duisternis en moordlust.
+Terwijl de demon zich in de kamer manifesteerde, vochten de avonturiers harder dan ooit. [[Burruku]], met haar bedrevenheid in de kunsten van het denken, probeerde de gedachten van de demon te doorgronden, maar vond alleen duisternis en moordlust.
 
 [[Daniqua]], vastberaden om de dreiging te stoppen, richtte al zijn macht op de magiër, zijn Blight  verzwakte hem tot hij verschrompelde tot niets meer dan een schaduw van zijn voormalige grootsheid.
 
