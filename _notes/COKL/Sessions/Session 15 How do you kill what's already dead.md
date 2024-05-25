@@ -32,8 +32,8 @@ Met wanhopige vastberadenheid, wetend dat hun kansen slecht stonden, gaf [[Burru
 
 [[Burruku]] bevrijdde [[Kayle]] en [[Daniqua]] wierp opnieuw Greater Invisibility, ditmaal op zichzelf. [[Burruku]] deed hetzelfde voor zichzelf en [[Vahkahl]].
 
-Iedereen rende voor hun leven. Na 30-60 seconden hoorden ze het lichaam van de vijandelijke Tiefling achter hen neervallen. De strijd was voorbij, maar de echo’s van hun moedige daden zouden voor altijd weerklinken in de hallen van hun herinneringen.
+Iedereen rende voor hun leven. Na 30-60 seconden hoorden ze het lichaam van de vijandelijke Tiefling achter hen neervallen. De strijd was voorbij, maar de echo’s van hun moedige daden zouden voor altijd weerklinken in de hallen van hun herinneringen. 
 
 ---/chatgpt battlereport---
 ![[sess 15.jpg]]
-<img src="/assets/sess 15.jpg"/>
+<img src="/assets/sess 15.jpg"/> 
