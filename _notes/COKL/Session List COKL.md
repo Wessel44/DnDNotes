@@ -12,4 +12,4 @@
 - [[Session 12 Confessing to murder]]
 - [[Session 13 NONYA BUSINESS!]]
 - [[Session 14 Exploding Jack]]
-- [[Session 15 fight]]
+- [[Session 15 Punching bags]]
