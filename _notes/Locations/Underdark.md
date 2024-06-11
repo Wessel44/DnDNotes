@@ -1,0 +1,2 @@
+The **Underdark** is a vast underground environment in the world.
+A dark and hostile place, the Underdark is almost a world unto itself, with civilizations, monsters, politics, economies, and threats that may interact only sporadically or indirectly with the surface world. Notably, the Underdark has significant connections to the Far Realm, from which many aberrations emerge.

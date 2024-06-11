@@ -5,7 +5,7 @@ Wife of [[Jaris Tyrkas]] and mother of [[Alima Tyrkas]]
 
 Previous inhabitant of [[Whysp Isle]]
 
-Apparently performed experiments on his daughter. 
+Apparently performed experiments on her daughter. 
 
 
 

@@ -3,3 +3,6 @@
 
 Encountered:
 On the way to [[Rumblecusp]] 
+
+Nicknamed: Steven
+Real name: Unknown

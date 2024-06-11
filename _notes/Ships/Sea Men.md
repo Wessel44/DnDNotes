@@ -21,6 +21,9 @@ PC:
 NPC:
 [[Dilyuu]]
 [[Orly]]
+[[Jerrick]]
+[[Strauss]]
+[[Alima Tyrkas]]
 
 Prisoner:
 [[Captain Vosskiir]]
