@@ -25,7 +25,7 @@ Terwijl jullie verder de grot uitliepen, zagen jullie achter jullie en de promin
 
 Jullie kwamen weer bij kennis. Beide hadden een zouterige smaak in hun mond.
 
-Na deze visioen probeerde [[Nicholai]] zijn tattoo/oog op zijn onderarm open te snijden. Toen hij dichterbij kwam wilde hij dit niet meer. [[Bigtoe Smalltoe]] en [[Yowensi]] besloten om hem te helpen. [[Bigtoe Smalltoe]] hield [[Nicholai]] vast en [[Yowensi]] gebruikte haar vaste hand om chirurgisch zijn arm open te snijden en de onderliggende Crystal te verwijderen. De Crystal viel met een harde plof in het zand. [[Nicholai]] voelde een verlichting, maar zijn extra krachten die hij van [[Uk'otoa]] had gekregen waren verdwenen. [[Tyra]] zag haar kans en misty stepped snel richting het Crystal in het zand. [[Krekhet]] probeerde haar nog tegen te houden door Sleep te casten, maar [[Tyra]] had meer HP dan dat [[Krekhet]] verwachtte. 
+Na dit visioen probeerde [[Nicholai]] zijn tattoo/oog op zijn onderarm open te snijden. Toen hij dichterbij kwam wilde hij dit niet meer. [[Bigtoe Smalltoe]] en [[Yowensi]] besloten om hem te helpen. [[Bigtoe Smalltoe]] hield [[Nicholai]] vast en [[Yowensi]] gebruikte haar vaste hand om chirurgisch zijn arm open te snijden en de onderliggende Crystal te verwijderen. De Crystal viel met een harde plof in het zand. [[Nicholai]] voelde een verlichting, maar zijn extra krachten die hij van [[Uk'otoa]] had gekregen waren verdwenen. [[Tyra]] zag haar kans en misty stepped snel richting het Crystal in het zand. [[Krekhet]] probeerde haar nog tegen te houden door Sleep te casten, maar [[Tyra]] had meer HP dan dat [[Krekhet]] verwachtte. 
 
 ![[sleepspellcast.gif]]
 <img src="/assets/sleepspellcast.gif"/>
