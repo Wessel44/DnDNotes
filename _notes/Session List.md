@@ -23,4 +23,5 @@
 - [[Session 22]]
 - [[Session 23]]
 
+<iframe src="https://www.worldanvil.com/w/wildemount-sea-men-wessel44/map/c068f133-995e-43c5-ae6e-99a50934c028" width="100%" height="600" style="border:none;"></iframe>
 
