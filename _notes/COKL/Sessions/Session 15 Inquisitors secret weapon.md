@@ -22,7 +22,7 @@ De vijandelijke Tiefling richtte zijn woede op [[Redeef]] en stormde op hem af. 
 
 [[Burruku]] zag dat de gebonden Tiefling in een nachtmerrie gevangen zat. Ze gebruikte Detect Thoughts en ontdekte zijn angstaanjagende droom van een vrouw die door soldaten werd vermoord. [[Vahkahl]] probeerde de Tiefling wakker te maken, maar faalde. [[Daniqua]] speelde een rustgevend deuntje op zijn fluit en [[Burruku]] zag hoe de nachtmerrie veranderde in een vreedzame droom.
 
-Ondanks [[Twiggles]]’ pogingen met Dispel Magic, bleef de vijandelijke Tiefling onaangetast. Eindelijk werd de gebonden Tiefling wakker en onthulde zijn naam: [[Kayle]]. Verward en onwetend over de situatie, stond hij op.
+Ondanks [[Twiggles]]’ pogingen met Dispel Magic, bleef de vijandelijke Tiefling onaangetast. Eindelijk werd de gebonden Tiefling wakker en onthulde zijn naam: [[Kaylen]]. Verward en onwetend over de situatie, stond hij op.
 
 Terwijl [[Vahkahl]] in de archieven van zijn geheugen zocht naar een manier om de vijand te verslaan, dit duurde heel lang. [[Burruku]] vond ondertussen twee identieke zwaarden in de kamer, gelijk aan die van de vijandelijke Tiefling.
 
@@ -32,7 +32,7 @@ Met wanhopige vastberadenheid, wetend dat hun kansen slecht stonden, gaf [[Burru
 
 [[Vahkahl]] herinnerde zich eindelijk hoe ze de vijand konden verslaan. “We moeten hem kalmeren of vluchten!” riep hij.
 
-[[Burruku]] bevrijdde [[Kayle]] en [[Daniqua]] wierp opnieuw Greater Invisibility, ditmaal op zichzelf. [[Burruku]] deed hetzelfde voor zichzelf en [[Vahkahl]].
+[[Burruku]] bevrijdde [[Kaylen]] en [[Daniqua]] wierp opnieuw Greater Invisibility, ditmaal op zichzelf. [[Burruku]] deed hetzelfde voor zichzelf en [[Vahkahl]].
 
 Iedereen rende voor hun leven. Na 30-60 seconden hoorden ze het lichaam van de vijandelijke Tiefling achter hen neervallen. De strijd was voorbij, maar de echo’s van hun moedige daden zouden voor altijd weerklinken in de hallen van hun herinneringen. 
 

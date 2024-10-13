@@ -13,3 +13,4 @@
 - [[Session 13 NONYA BUSINESS!]]
 - [[Session 14 Exploding Jack]]
 - [[Session 15 Inquisitors secret weapon]]
+- [[Session 16 Hella sharp]]

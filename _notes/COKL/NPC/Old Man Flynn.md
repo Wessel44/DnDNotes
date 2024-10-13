@@ -1,0 +1,1 @@
+Magic shop owner in [[Ashlava]]
