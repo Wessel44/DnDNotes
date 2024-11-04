@@ -1,0 +1,1 @@
+Fortune seeking dwarf in [[Phandelin]]. 
