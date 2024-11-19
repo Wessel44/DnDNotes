@@ -5,3 +5,10 @@ Humanoids who are Undead
 
 Known Hollow ones:
 [[Jamedi]]
+[[Tyra]]
+
+
+![[HollowOne.jpeg]]
+<img src="/assets/HollowOne.jpeg"/>
+
+
