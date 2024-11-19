@@ -1,8 +1,8 @@
 De battle met [[Anne Bonny]] ging door. [[Tyra]] riep luid "FUCK" terwijl ze haar [[Needle of Mending]] tevoorschijn haalde en zonder aarzelen een van de Undead Sea Creatures doodstak. De rest van de groep richtte hun aandacht volledig op [[Anne Bonny]]. 
 
-[[PC/Bigtoe Smalltoe|Bigtoe Smalltoe]] kreeg een geniale ingeving: zijn [[Lightbringer]] zou met zijn radiant damage wel eens bijzonder effectief kunnen zijn tegen de undead vijanden. Hij haalde uit en raakte het andere Undead Sea Creature, dat zichtbaar extra leed onder de radiant damage. [[Krekhet]] gebruikte zijn laatste twee meteoren, die allebei doel troffen op [[Anne Bonny]]. Ondanks de krachtige inslagen bleef ze opstaan alsof er niets gebeurd was. 
+[[Bigtoe Smalltoe]] kreeg een geniale ingeving: zijn [[Lightbringer]] zou met zijn radiant damage wel eens bijzonder effectief kunnen zijn tegen de undead vijanden. Hij haalde uit en raakte het andere Undead Sea Creature, dat zichtbaar extra leed onder de radiant damage. [[Krekhet]] gebruikte zijn laatste twee meteoren, die allebei doel troffen op [[Anne Bonny]]. Ondanks de krachtige inslagen bleef ze opstaan alsof er niets gebeurd was. 
 
-[[Anne Bonny]] was duidelijk niet blij met de situatie. Ze strekte haar hand uit en stuurde een golf van necrotic magic richting [[Bob]]. [[Bob]] gebruikte zijn Tides of Chaos om de aanval af te weren. Gefrustreerd besloot [[Anne Bonny]] om [[Bob]] direct met haar zwaard aan te vallen. Ondertussen rende [[Nicholai]], die zag dat zowel [[Bob]] als [[Bigtoe Smalltoe]] het zwaar hadden, naar [[Bigtoe Smalltoe]] toe en begon zijn “wangen” te masseren. Tot ieders verbazing knapte [[Bigtoe Smalltoe]] hierdoor zichtbaar op. 
+[[Anne Bonny]] was duidelijk niet blij met de situatie. Ze strekte haar hand uit en stuurde een golf van necrotic magic richting [[Bob]]. [[Bob]] gebruikte zijn Tides of Chaos om de aanval af te weren. Gefrustreerd besloot [[Anne Bonny]] om [[Bob]] direct met haar zwaard aan te vallen. Ondertussen rende [[Nicholai]], die zag dat zowel [[Bob]] als [[Bigtoe Smalltoe]] het zwaar hadden, naar [[Bigtoe Smalltoe]] toe en begon zijn “wangen” te masseren. Tot ieders verbazing knapte [[Bigtoe Smalltoe]] hierdoor zichtbaar op. 
 
 ![[nicholaimassage.gif]]
 <img src="/assets/nicholaimassage.gif"/>
@@ -83,7 +83,7 @@ Aangekomen bij [[Nesmin Wilrell]] werden jullie binnengelaten en deelden julli
 
 Daarna bracht [[Nesmin Wilrell]] jullie op de hoogte van de situatie tussen de [[Revelry]] en de [[Clovis Concord]]. Na een aanval van de [[Revelry]] op [[Brokenbank]] had de [[Clovis Concord]] een grootschalige aanval op [[Darktow Isle]] ingezet, met als doel de [[Revelry]] en de [[Plank King]] te vernietigen. De aanval liep echter uit op een fiasco: de verdediging van [[Darktow Isle]] bleek veel sterker dan verwacht. 
 
-[[Nesmin Wilrell]] vertelde ook dat de [[Cobalt Soul]] informanten heeft op [[Darktow Isle]], maar dat contact met hen nog niet tot stand is gekomen. Vervolgens deelde hij een nieuwe missie voor jullie team. Toch besloten jullie eerst om het geld, verdiend met het verslaan van [[Vokodo]], uit te geven. [[Nesmin Wilrell]]n verwees jullie door naar het [[Arcane Imporium]] van [[Gylex Awlyn]], een bekende magische winkel in [[Nicodranas]]. 
+[[Nesmin Wilrell]] vertelde ook dat de [[Cobalt Soul]] informanten heeft op [[Darktow Isle]], maar dat contact met hen nog niet tot stand is gekomen. Vervolgens deelde hij een nieuwe missie voor jullie team. Toch besloten jullie eerst om het geld, verdiend met het verslaan van [[Vokodo]], uit te geven. [[Nesmin Wilrell]]n verwees jullie door naar het [[Arcane Imporium]] van [[Gylex Awlyn]], een bekende magische winkel in [[Nicodranas]]. 
 
 Aankopen in het [[Arcane Imporium]]
 
