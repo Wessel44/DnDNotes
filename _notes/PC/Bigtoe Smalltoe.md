@@ -2,6 +2,7 @@
 
 Current items:
 
+
 [[Gauntles of Ogre Power]]
 [[Hew]]
 [[Lightbringer]]
@@ -13,3 +14,5 @@ Current items:
 
 ![[Bigtoewanted.png]]
 <img src="/assets/Bigtoewanted.png"/>
+
+
