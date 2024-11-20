@@ -9,6 +9,9 @@ De battle met [[Anne Bonny]] ging door. [[Tyra]] riep luid "FUCK" terwijl ze
 
 Met hernieuwde kracht viel [[Bigtoe Smalltoe]] [[Anne Bonny]] aan met zijn [[Lightbringer]]. Deze aanval bleek te veel voor haar; ze viel achterover en tuimelde van het schip af. Terwijl ze verdween in de golven, vloog er een welbekende gele crystal uit haar borst. [[Bigtoe Smalltoe]] ving de crystal, maar de kracht ervan was overweldigend. Hij schreeuwde van de pijn, liet de crystal vallen, en deze landde op het dek van het schip. Het overgebleven Undead Sea Creature rende snel achter [[Anne Bonny]] aan en sprong de zee in. 
 
+![[UndeadAnneBonny.png]]
+<img src="/assets/UndeadAnneBonny.png"/>
+
 [[Yowensi]] activeerde haar [[Boots of Speed]] en sprintte richting de crystal. Hoewel ze had gezien hoe deze [[Bigtoe Smalltoe]] pijn had gedaan, besloot ze de crystal alsnog richting [[Krekhet]] te schoppen. Ook zij schreeuwde van pijn door de necrotische energie. 
 
 ![[yowensikickBootsofSpeed.gif]]
