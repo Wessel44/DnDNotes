@@ -1,0 +1,1 @@
+(dead) [[Contractors]] member. Previous owner of [[Redeef]]'s sword.

@@ -15,3 +15,4 @@
 - [[Session 15 Inquisitors secret weapon]]
 - [[Session 16 Hella sharp]]
 - [[Session 17 Assassination prevented]]
+- [[Session 18 Blowing the whistle]]
