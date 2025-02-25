@@ -16,3 +16,4 @@
 - [[Session 16 Hella sharp]]
 - [[Session 17 Assassination prevented]]
 - [[Session 18 Blowing the whistle]]
+- [[Session 19 I'm sorry]]
