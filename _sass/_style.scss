@@ -13,6 +13,7 @@ $color-text-dark: hsl(0, 0%, 85%);
 $color-subtext-dark: hsl(0, 0%, 75%);
 $color-border-dark: hsl(0, 0%, 35%);
 $color-box-background-dark: mix($color-primary-dark, black, 4%);
+$color-box-a-text: hsl(0, 0%, 10%);
 
 body {
   box-sizing: content-box;
@@ -36,7 +37,7 @@ body.dark-mode {
 }
 
 body.dark-mode a {
-  color: $color-primary-dark;
+  color: $color-box-a-text;
   border-bottom: 1px solid $color-border-dark;
 }
 
