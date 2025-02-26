@@ -9,5 +9,22 @@
     </div>
 
     {% include link-previews.html wrapperQuerySelector="content" %}
+
+    <script>
+      document.addEventListener("DOMContentLoaded", function () {
+        const toggleButton = document.getElementById("theme-toggle");
+        const body = document.body;
+        const userPrefersDark = window.matchMedia("(prefers-color-scheme: dark)").matches;
+    
+        if (localStorage.getItem("dark-mode") === "enabled" || (!localStorage.getItem("dark-mode") && userPrefersDark)) {
+          body.classList.add("dark-mode");
+        }
+    
+        toggleButton.addEventListener("click", function () {
+          body.classList.toggle("dark-mode");
+          localStorage.setItem("dark-mode", body.classList.contains("dark-mode") ? "enabled" : "disabled");
+        });
+      });
+    </script>
   </body>
 </html>
